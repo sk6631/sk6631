@@ -11,5 +11,11 @@
 🧠Ask me about any thing
 
 
+LeetCode:  https://leetcode.com/u/SK6631/
+
+Instagram: https://www.instagram.com/mr_karena18/
+
+HackerRank: https://www.hackerrank.com/profile/sureshkarena9
+
 
 
